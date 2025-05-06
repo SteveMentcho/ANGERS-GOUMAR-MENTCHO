@@ -1,2 +1,2 @@
-# PYTHON-Groupe-6
+# Angers-GOUMAR-MENTCHO
 Ange Ingrid EBOA, EYOUM Peguy, MENTCHO Steve, KELIAN SAH
